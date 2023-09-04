@@ -2,7 +2,8 @@
 
 ##Doc's BestFriend 😊❤️
 
-![AteezHappySanGIF](https://github.com/AllanMuhari/AllanMuhari/assets/107704648/50865196-ccbd-4603-b6d7-4ebcb0c560a3)
+![HappyDanceHappyGIF](https://github.com/AllanMuhari/AllanMuhari/assets/107704648/839597e0-7252-4143-abe4-895224edc7cb)
+
 
 
 <!--
