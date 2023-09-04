@@ -1,5 +1,10 @@
 ### Hi there 👋
 
+##Doc's BestFriend 😊❤️
+
+![AteezHappySanGIF](https://github.com/AllanMuhari/AllanMuhari/assets/107704648/50865196-ccbd-4603-b6d7-4ebcb0c560a3)
+
+
 <!--
 **AllanMuhari/AllanMuhari** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
