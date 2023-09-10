@@ -1,6 +1,6 @@
 ### Hi there 👋
 ## Doc's BestFriend 😊
-![HappyDanceHappyGIF](https://github.com/AllanMuhari/AllanMuhari/assets/107704648/839597e0-7252-4143-abe4-895224edc7cb)
+
 
 
 
